@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://media1.tenor.com/m/j5YcO9slE7YAAAAd/leslie-nielsen-nothing-to-see-here.gif)
+![](https://vived.io/wp-content/uploads/2023/01/image-768x432.png)
